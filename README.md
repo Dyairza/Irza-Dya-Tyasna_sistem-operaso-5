@@ -1,0 +1,1 @@
+# Irza-Dya-Tyasna_sistem-operaso-5
